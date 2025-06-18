@@ -1,0 +1,1 @@
+Not losing my hobby of writing, while maintaining my jee-tod mehnat for learning aiml, doing dsa and web development. 
